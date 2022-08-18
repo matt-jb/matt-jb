@@ -1,3 +1,3 @@
 # Hi, I'm Matt.
 
-A Project Manager, based in Warsaw, Poland. I also do some coding on the side.
+For more information on me, here's my LinkedIn profile: https://www.linkedin.com/in/mateusz-jarzebowski-bownik/
